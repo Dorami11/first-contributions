@@ -67,6 +67,7 @@ YoucefBoursali
 - [arshadali](https://github.com/Arshadalee)
 - [Greem Fox](https://github.com/vulpes-viridis)
 - [Charulekha P](https://github.com/charulekha-pandian)
+- Taydawg!! [https://github.com/Dorami11]
 - [aayamrajshakya](https://github.com/aayamrajshakya)
 - Namu
 - [meenakshiruia](https://github.com/meenakshiruia)
